@@ -6,10 +6,10 @@
 
 #### Contacts 🌉​
 - Website: [soon]()
-- Youtube: [yohan]([https://youtube.com/maeel](https://www.youtube.com/@yohannodxd))
+- Youtube: [yohan]([https://www.youtube.com/@yohannodxd])
 - Twitter: [@yohannodxd](https://twitter.com/yohannodxd)
 - Discord: [@yohannodxd](https://discord.com/users/262511127227924481)
-- Soundcloud: [yohan]([https://soundcloud.com/maaeeel](https://soundcloud.com/yo4n-yohan))
+- Soundcloud: [yohan]([https://soundcloud.com/yo4n-yohan])
 
 
 <br clear="left"/>
